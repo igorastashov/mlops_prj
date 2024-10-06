@@ -3,7 +3,8 @@
 Асташов Игорь Владиславович
 https://t.me/Astashov_I_V
 
-![image](https://github.com/user-attachments/assets/c18fd004-0c70-4d03-a7aa-1072afc64e08)
+![image](https://github.com/user-attachments/assets/31397c20-7ff5-4d34-8914-29d83a0086dd)
+![image](https://github.com/user-attachments/assets/190d4008-d4f8-469f-ac08-f65a407c8d76)
 ![image](https://github.com/user-attachments/assets/87c5634e-1ec9-44ca-8ec4-46a99d92956f)
 ![image](https://github.com/user-attachments/assets/42099df6-7c1e-4e33-b773-337708008d17)
 ![image](https://github.com/user-attachments/assets/0758165d-e8f1-480d-b8f6-d1c4b49a49b9)
